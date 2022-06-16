@@ -1,0 +1,5 @@
+-  😸Hi, I’m Kelly 
+-  💖I’m interested in: Cats 
+-  ✨I’m currently learning: Cyber Security 
+-  🌹I’m looking to collaborate on: Projects
+-  🔮How to reach me: EMAIL
